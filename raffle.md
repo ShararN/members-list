@@ -1,3 +1,4 @@
+Nithursan Elamuhilan nithursan.elamuhilan@mail.utoronto.ca
 Kalindu, kalindu.decosta@mail.utoronto.ca
 Sakshaat Choyikandi, sakshaat.choyikandi@mail.utoronto.ca
 Brian Au, brian.au@mail.utoronto.ca
